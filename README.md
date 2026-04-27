@@ -1,5 +1,2 @@
-# data
-
-
-
-<a href="https://files.catbox.moe/l76di9.pdf">pdf</a>
+©️VoltNexis Data 2026. All Rights Reserved
+These all files in this repo are sunjected under copyright
